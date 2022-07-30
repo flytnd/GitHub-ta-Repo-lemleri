@@ -1,1 +1,0 @@
-# GitHub-ta-Repo-lemleri
